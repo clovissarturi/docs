@@ -1,4 +1,4 @@
-# Privacy Policy - TennisCount
+# Privacy Policy - TennisCountWatch
 
 **Last updated:** February 19, 2026
 
